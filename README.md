@@ -1,0 +1,2 @@
+# Seattle-AirBNB-Data
+If you want to earn extra money or to meet new people and occur new cultures, you should share your space on Airbnb. If you decided to host on Airbnb, firstly you need to advertise the location of your place,  which things you're offering , numbers of bedrooms and bathrooms and so on. How do you advertise to get more guests? So, I prepared for you how should you upgrade your home to accommodate for guests. There are a few questions. 
